@@ -31,4 +31,5 @@ Ou pode ser que toda essa súbita lucidez seja efeito de três dias seguidos sob
 ---
 
 Rodrigo Menegat Schuinski
+
 Ponta Grossa, 19/03/2025
