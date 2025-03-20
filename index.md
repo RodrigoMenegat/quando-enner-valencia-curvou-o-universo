@@ -28,6 +28,7 @@ Tudo é lógico, claro, translúcido e óbvio como a física einsteiniana.
 
 Ou pode ser que toda essa súbita lucidez seja efeito de três dias seguidos sobrevivendo de churrasco de vazio e cerveja Polar. Logo saberemos. Até lá, me deixem aqui, falando sozinho e olhando para o nada. Estou feliz.
 
+---
 
-_Rodrigo Menegat Schuinski_
-**Ponta Grossa, 19/03/2025**
+Rodrigo Menegat Schuinski
+Ponta Grossa, 19/03/2025
